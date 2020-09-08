@@ -11,3 +11,8 @@
 - Lindsey Lopez
   - Email: snapitlindsey@gmail.com
   - github: carlosantos11
+
+  Eric Espinosa
+    Email: ericjr.espinosa@gmail.com
+    github: ericjrespinosa
+  
