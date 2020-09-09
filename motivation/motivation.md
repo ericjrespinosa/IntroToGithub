@@ -11,7 +11,11 @@ Motivation:
   My goal here is to motivate you and have you feel like this career shift is possible for you. Through hard work and definitive purpose it 
   is possible. 
   
-  
-  
-  
+  Name: Eric ericjr.espinosa@gmail.com
+  Motivation:
+    My motivation for participating in this training is gain new skills and knowledge and pursue a new career. 
+    
+    Learning Style: my learning style is auditory and being able to physically try the new task I am learning. 
+    intersting fact: I was a zipline tour guide for 3 months.
+
  
