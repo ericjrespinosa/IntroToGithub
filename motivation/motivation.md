@@ -15,7 +15,7 @@ Motivation:
   Motivation:
     My motivation for participating in this training is gain new skills and knowledge and pursue a new career. 
     
-    Learning Style: my learning style is auditory and being able to physically try the new task I am learning. 
-    intersting fact: I was a zipline tour guide for 3 months.
+    Learning Style: my learning style is auditory and being able to physically try the new task I am learning.     intersting fact: I was a zipline tour guide for 3 months and one day
+hello hello
 
  
